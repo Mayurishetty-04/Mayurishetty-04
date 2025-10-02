@@ -1,7 +1,6 @@
-                                                                   # 👩‍💻 Mayuri Shetty  
+# 👩‍💻 Mayuri Shetty  
 
-                                                          ✨ *Developer | Learner | Innovator* ✨  
-
+✨ *Developer | Learner | Innovator* ✨  
 
 
 ## 🚀 About Me  
