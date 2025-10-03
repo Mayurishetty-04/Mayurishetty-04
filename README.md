@@ -1,4 +1,4 @@
-# 👩‍💻 Mayuri Shetty  
+# 👩‍💻 Mayuri J Shetty  
 
 ✨ *Developer | Learner | Innovator* ✨  
 
